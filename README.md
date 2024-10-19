@@ -1,8 +1,8 @@
 你好! こんにちわ! Hello!
 
-I’m @EzyXwllykr
+I’m Ezy (@EzyXwllykr)
 
-You can call me Ezy. I use any pronouns.
+I use any pronouns.
 
 I'm just learning a little bit of programming.
 
